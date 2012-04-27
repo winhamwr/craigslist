@@ -1,0 +1,1 @@
+-e git+git://github.com/waylan/Python-Markdown.git@2.1.1.final#egg=markdown
