@@ -46,9 +46,9 @@ Things which we have that are awesome:
 
 Things we prefer in a roommate:
 
-* Ability and preference for consumption of large quantities of meat,
-  specifically bacon-based meats.
-* An awesome sense off humor,
+* Ability and preference for consumption of large quantities of meat.
+  Specifically, bacon.
+* An awesome sense of humor
   without being funnier than Wes,
   because he probably can't handle the competition.
 * A lifestyle conducive to being awesome
@@ -73,7 +73,6 @@ Sometimes, cooking happens here. Primarily bacon:
 ![kitchen](http://lh5.googleusercontent.com/-7G35775RbZk/TpRV_WcrlmI/AAAAAAAAUuY/nEvEUh70SzQ/s895/IMG_20101129_213434.jpg "kitchen")
 
 Outside our apartment.
-
 The Block was an old department store,
 which increases the awesometude with a sweet atrium.
 ![atrium](http://lh4.googleusercontent.com/-JRvXMm6RpP8/TpRV_avPDoI/AAAAAAAAUuw/GVj8PsjvUfE/s959/IMG_20101129_214240.jpg "atrium")
