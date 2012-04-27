@@ -36,7 +36,7 @@ and this will be our 3rd year in this place
 Our current roommate (hi Z) is unfortunately moving out,
 but that means we get to meet you!
 We've had really good luck with roommies on Craigslist
-and we hope you will help us continue rolling 7's.
+and we hope you will help us continue rolling 20's.
 
 Things which we have that are awesome:
 
