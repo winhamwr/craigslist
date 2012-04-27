@@ -7,5 +7,5 @@ html: *.md
 		mkdir -p html
 		markdown_py 2012_06_roommate.md > html/2012_06_roommate.html
 
-preview: html/*.html
+preview: html
 		google-chrome file://$(CWD)/html/2012_06_roommate.html
