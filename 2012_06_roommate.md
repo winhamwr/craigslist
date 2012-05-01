@@ -21,7 +21,7 @@ Wanna hang out?
 
 Up for rent is the 3rd bedroom in our 3 BR,
 2 bath downtown apartment
-with **June 1st availability**.
+with **immediate availability**.
 We're on the 8th floor of **The Block** apartments,
 located on *Illinois and Market*,
 one block west of the circle in the heart of downtown.
@@ -30,11 +30,11 @@ We love it.
 
 ![View from our 8th floor window](https://lh6.googleusercontent.com/-PGL_BamVRhU/TpRV_Ues-yI/AAAAAAAAUuM/y8MbrzC9_L4/s895/dsc00228.jpg "View from our 8th floor window, towards the circle")
 
-We're two 27yo (that's internet speak for Years Old) uber geeks
+We're two 27yo (that's internet speak for Years Old) dudes
 and this will be our 3rd year in this place
 (it's too awesome to leave).
-Our current roommate (hi Z) is unfortunately moving out,
-but that means we get to meet you!
+Our previous roommate (hi Z) just moved back to Chicago,
+so that means we get to meet you!
 We've had really good luck with roommies on Craigslist
 and we hope you will help us continue rolling 20's.
 
