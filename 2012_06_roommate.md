@@ -10,10 +10,10 @@ $750 / 1800ft2 - 3rd bedroom in baller downtown apt (downtown)
   to the mall without stepping outside?
 * Does a 5-minute walk home from the downtown bars sound swell?
 
-If you answered yes to all of these questions, then cool.
-We approve of your preferences.
+If you answered yes to all of these questions, then sweet.
+Has anyone ever told you that you have excellent taste?
 
-You're pretty cool. I like your shoes.
+Also, you're pretty cool and I like your shoes.
 
 Wanna hang out?
 
@@ -75,7 +75,48 @@ Sometimes, cooking happens here. Primarily bacon:
 Outside our apartment.
 The Block was an old department store,
 which increases the awesometude with a sweet atrium.
+
 ![atrium](http://lh4.googleusercontent.com/-JRvXMm6RpP8/TpRV_avPDoI/AAAAAAAAUuw/GVj8PsjvUfE/s959/IMG_20101129_214240.jpg "atrium")
 
 Here is a google photo album with
 [more assorted pictures](https://plus.google.com/photos/105559902839120718707/albums?banner=pwa#photos/105559902839120718707/albums/5662245176882919249).
+
+This is [The Block Apartments'](http://www.blockapts.com/) website.
+Their pictures aren't from a phone,
+so they suck less than ours.
+
+## FAQ
+
+### Q: Is parking included in the $750?
+
+**A:** The $750 includes a parking spot in the connected parking garage.
+If you don't need a car,
+or already have parking,
+knock $125 off that.
+
+### Q: What about a short-term lease?
+
+**A:** We're open to the idea,
+but we'd really prefer something for the rest of our lease period.
+
+### Q: When is your lease up?
+
+**A:** March 2013
+
+### Q: What extra costs should I expect?
+
+**A:** In 2011, we averaged $100.65 per person per month between
+utilities,
+water delivery,
+broadband internet
+and bi-weekly cleaning services
+(for the bathrooms and common areas).
+You should expect about the same.
+
+### Q: $400 per month, final offer. But I'm really cool!
+
+**A:** That's not even a question, Whitney.
+
+### Q: Are you guys awesome?
+
+**A:** Totally.
