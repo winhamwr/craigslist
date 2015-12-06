@@ -2,9 +2,26 @@
 
 If you’re looking for a cozy, clean, affordable and mostly quiet place to call home base in the city for at least 6 months, living here would be a **capital** idea. All this apartment needs to feel complete is your fun-loving, adventurous self plus your bedroom furniture and preferably your own toothbrush. ;P
 
+**Living Room**
+![](https://www.dropbox.com/s/h2stjea26a7pblx/LNP_2816.jpg?dl=1 "the living room")
+Why, yes, those are indeed Christmas ornaments hung on tree branches suspended across the living room from monofiliment thread. You have a great eye.
+
 ## THE NEST
 
 This 3-bedroom, 2-bath space stretches over 1,600 square feet and flaunts 20-foot vaulted ceilings in the kitchen and living room where one wall is windowed, another projects our streamed movies and another displays our giant classroom roller map of the world.
+
+**Kitchen**
+![](https://www.dropbox.com/s/6dibv3an0f3iewg/LNP_2818.jpg?dl=1)
+
+**Main Hallway**
+![](https://www.dropbox.com/s/fgna4pgya7gx7uq/LNP_2822.jpg?dl=1)
+
+**Window Looking Down on Illinois St**
+![](https://www.dropbox.com/s/9wyt35jyi3epvdc/LNP_2826.jpg?dl=1)
+In case you're wondering, yes, it's a ton of fun to use an industrial-grade bubble-blowing machine out this window and watch people smile as they look up.
+
+**Window Facing North**
+![](https://www.dropbox.com/s/ijohtohkfdu2484/LNP_2828.jpg?dl=1)
 
 ## THE BACKYARD
 
@@ -12,6 +29,10 @@ Yes, I said "delectably downtown" because The Block apartments are so close to t
 
 > Monument Circle - 1 block
 People watch while you eat cheesecake from South Bend Chocolate Company
+
+**Window Facing East Towards Monument Circle**
+![](https://www.dropbox.com/s/2p6wnyzclx5c9rb/LNP_2829.jpg?dl=1)
+The hand poking over the building in the lower right is the statue on the top of the monument. Hello, monument lady!
 
 > Indianapolis Canal - 3 blocks
 A 3-mile loop perfect for outdoor exercise
@@ -24,6 +45,9 @@ Leave your coat at home for winter-time shopping, bar-hopping and movie watching
 
 >Indianapolis Arts Garden - attached
 Enjoy the view above the Illinois and E Washington Street intersection while you eat
+
+**Window Facing South Towards the Arts Garden**
+![](https://www.dropbox.com/s/iv79ksc97gomw4g/LNP_2824.jpg?dl=1)
 
 >24-hour apartment fitness center - attached
 Air-conditioned exercising is only an elevator ride away; for added fitness, we have stairs too!
